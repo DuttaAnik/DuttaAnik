@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am currently working on population genomics of a wild tomato species
+I am currently working as a PostDoc on population genomics of a wild tomato species
 
 
 ## 🌐 Socials:
